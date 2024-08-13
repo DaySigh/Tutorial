@@ -36,3 +36,7 @@ Starter Repair/Rebuild (Mitsubishi Lancer)
 2003 Mitsubishi Diamante electronic climate control
 > https://www.youtube.com/watch?v=VH2sIFdNxAw
 
+Cara Test Panel Aircond Digital
+> https://www.youtube.com/watch?v=XOsLZzPWoaE
+
+
